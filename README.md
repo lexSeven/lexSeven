@@ -6,9 +6,9 @@
 
 
 
-### About me? :eyes:
-That's all in the past. Forget it。
-I'm more concerned about the future
+### About me？ :eyes:
+- That's all in the past. Forget it. I'm more concerned about the future
+- :e-mail: but you can also ask me about anything ; **[q213546879@hotmail.com](q213546879@hotmail.com)**
 
 
 
