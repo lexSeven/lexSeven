@@ -1,4 +1,4 @@
-### Hello gays 👋,I'm lexSeven
+### Hello guys 👋,I'm lexSeven
 
 :smiley: I'm working at **[开课吧](https://www.kaikeba.com/)**
 
